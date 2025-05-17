@@ -1,1 +1,1 @@
-worldrenownedlaywer is not me thats my friend slowpokey dont drag my friends into things please & thank you they dont need or deserve that and i quite enjoy my 9 to 5 job catch me makin bank ill tell u whut
+worldrenownedlaywer is not me thats my friend slowpokey dont drag my friends into things please & thank you they dont need or deserve that and i quite enjoy my 9 to 5 job catch me makin bank ill tell u whut. to busy workin and playing fortnite to care about some almost year old drama that yall still dragging on idk how yall told me to move on 😯
