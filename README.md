@@ -1,1 +1,1 @@
-worldrenownedlaywer is not me thats my friend slowpokey dont drag my friends into things please & thank you they dont need or deserve that
+worldrenownedlaywer is not me thats my friend slowpokey dont drag my friends into things please & thank you they dont need or deserve that and i quite enjoy my 9 to 5 job catch me makin bank ill tell u whut
